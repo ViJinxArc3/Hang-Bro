@@ -35,7 +35,6 @@ Rules of the game:
 
 
 : ALTERNATIVELY FOLLOW THE BELOW LINK:
-
-
+https://polite-snickerdoodle-38467b.netlify.app/
 
 ENJOY!
